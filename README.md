@@ -204,7 +204,7 @@ Each episode explores real-world AI deployment from concept to operations.
 **Ganesh Prasad Bhandari**  
 AI Solution Architect | Enterprise AI & GenAI Innovator  
 📍 Massachusetts, USA  
-🌐 [LinkedIn](https://www.linkedin.com/in/) | [YouTube Channel](https://www.youtube.com/@)  
+🌐 [LinkedIn](https://www.linkedin.com/in/) | [YouTube Channel](https://www.youtube.com/@AIINOVATEHUB)  
 
 ---
 
