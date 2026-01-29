@@ -1,6 +1,6 @@
 # 🧠 Enterprise AI Supply Chain Architecture 2026  
 **From Forecasting to Autonomous Decision-Making**  
-Designed & Presented by Ganesh Prasad Bhandari (https://www.linkedin.com/feed/update/urn:li:activity:7412628702942961664/)](https://www.linkedin.com/in/ganesh-prasad-bhandari-b165b9187/)
+Designed & Presented by Ganesh Prasad Bhandari (https://www.linkedin.com/feed/update/urn:li:activity:7422096079317422080/)
 
 ---
 
